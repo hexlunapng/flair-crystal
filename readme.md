@@ -11,3 +11,6 @@ Launcher Archives
 
 Support Crystal
 at: discord.gg/crystalfn
+
+
+if a crystal owner wants both of the archives to be gone dm me at @xlnk
